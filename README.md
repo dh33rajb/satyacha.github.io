@@ -1,1 +1,0 @@
-# satyacha.github.io
